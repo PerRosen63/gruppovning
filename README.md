@@ -1,3 +1,3 @@
-# gruppovning
+# Grupp 1! 
 
-hej grupp allihop hejehjehje
+Hej, här kommer övningen!  
