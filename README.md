@@ -1,4 +1,11 @@
 # Grupp 1! 
 
 
-Hej, här kommer övningen!  
+hej grupp 1 testest
+Hej, här kommer övningen! 
+
+Konflikt test
+
+
+
+
