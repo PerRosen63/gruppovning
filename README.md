@@ -1,3 +1,3 @@
 # gruppovning
 
-hej gruppkompisar 1
+hej grupp allihop hejehjehje
