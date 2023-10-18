@@ -1,3 +1,3 @@
 # gruppovning
 
-hej grupp 1
+hej gruppkompisar 1
