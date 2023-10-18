@@ -1,3 +1,4 @@
 # gruppovning
 
-hej grupp allihop hejehjehje
+hej gruppen nu radbryter
+vi
